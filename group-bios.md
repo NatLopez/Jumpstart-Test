@@ -6,6 +6,5 @@ Natalia Lopez is just a helicopter dog parent who loves cake and ice cream. Lola
 
 Tori Culler is a proud owner of a cat. Or does the cat own her? Both like sushi.
 
-testtest
-
+Adding another bio here.
 
